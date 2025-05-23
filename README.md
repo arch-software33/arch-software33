@@ -48,8 +48,8 @@
 
 ### 📫 Get in Touch
 
-- [LinkedIn](https://www.linkedin.com/in/YOUR-LINKEDIN)  
-- [Email](mailto:YOUR.EMAIL@domain.com)
+- [Discord](https://discordapp.com/users/1292558383286849580)  
+- [Email](mailto:arch-software33@gmail.com)
 
 ---
 
